@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">My name is FURY SUDHA and I'm a DESINER</p>
+<p align="left">My name is FURY SUDHA and I'm a DESIGNER</p>
 
 ###
 
